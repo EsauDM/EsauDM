@@ -1,5 +1,5 @@
 # 💫 About Me:
-Atualmente Analista de suporte de sistemas ERP<br>Procurando primeira vaga como desenvolvedor web <br>
+Atualmente Analista de suporte<br>Procurando primeira vaga como desenvolvedor web <br>
 
 
 ## 🌐 Socials:
